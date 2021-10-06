@@ -2,5 +2,5 @@
 
 Title StreamingFilm | Link
 ------------ | -------------
-Nama atau judul | [Link](http://link_kamu.com)
-Nama atau judul | [Link](http://link_kamu.com), [Link2](http://link_kamu.com)
+Little Mom (2021) | [Link](http://185.212.128.40/tv/little-mom-2021/)
+Squid Game (2021) | [Link](http://185.212.128.40/tv/squid-game-2021/)
