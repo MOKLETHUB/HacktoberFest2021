@@ -2,5 +2,5 @@
 
 Title StreamingAnime | Link
 ------------ | -------------
-Nama atau judul | [Link](http://link_kamu.com)
-Nama atau judul | [Link](http://link_kamu.com), [Link2](http://link_kamu.com)
+Komi-san wa, Comyushou desu. | [Link](https://nontonanimeid.com/anime/komi-san-wa-comyushou-desu/)
+Blue Period | [Link](https://nontonanimeid.com/anime/blue-period/)
