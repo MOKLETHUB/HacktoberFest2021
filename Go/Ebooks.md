@@ -8,3 +8,5 @@ How To Win Friends and Influence People | [Link](https://www.pdfdrive.com/how-to
 Beyond the Great South Wall: The Secret of the Antarctic | [Link](https://www.free-ebooks.net/sci-fi-fantasy/Beyond-the-Great-South-Wall-The-Secret-of-the-Antarctic)
 Waiting for Me | [Link](https://www.free-ebooks.net/romance/Waiting-for-Me)
 Tarot Card Readings And Your Destiny | [Link](https://www.free-ebooks.net/body-spirit/Tarot-Card-Readings-And-Your-Destiny)
+THE LOVE ECLIPSE: LOVE IS NOT A FEELING, IT IS A CHOICE | [Link](https://www.free-ebooks.net/romance/THE-LOVE-ECLIPSE-LOVE-IS-NOT-A-FEELING-IT-IS-A-CHOICE)
+https://www.free-ebooks.net/sci-fi-fantasy/The-Secret-Cave | [Link](https://www.free-ebooks.net/sci-fi-fantasy/The-Secret-Cave)
