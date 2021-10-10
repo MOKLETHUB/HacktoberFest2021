@@ -9,4 +9,4 @@ Beyond the Great South Wall: The Secret of the Antarctic | [Link](https://www.fr
 Waiting for Me | [Link](https://www.free-ebooks.net/romance/Waiting-for-Me)
 Tarot Card Readings And Your Destiny | [Link](https://www.free-ebooks.net/body-spirit/Tarot-Card-Readings-And-Your-Destiny)
 THE LOVE ECLIPSE: LOVE IS NOT A FEELING, IT IS A CHOICE | [Link](https://www.free-ebooks.net/romance/THE-LOVE-ECLIPSE-LOVE-IS-NOT-A-FEELING-IT-IS-A-CHOICE)
-https://www.free-ebooks.net/sci-fi-fantasy/The-Secret-Cave | [Link](https://www.free-ebooks.net/sci-fi-fantasy/The-Secret-Cave)
+The Secret Cave | [Link](https://www.free-ebooks.net/sci-fi-fantasy/The-Secret-Cave)
