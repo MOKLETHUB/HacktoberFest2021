@@ -9,3 +9,4 @@ Nonton Kyuuketsuki Sugu Shinu Subtitle Indonesia | [Link](https://nontonanimeid.
 Selection Project Episode 2 Sub Indo | [Link](https://nontonanimeid.com/selection-project-episode-2/)
 Komi-san wa Comyushou desu Episode 3 Sub Ind | [Link](https://nontonanimeid.com/komi-san-wa-comyushou-desu-episode-3/)
 Shinka no Mi Shiranai Uchi ni Kachigumi Jinsei Episode 3 Sub Indo | [Link](https://nontonanimeid.com/shinka-no-mi-shiranai-uchi-ni-kachigumi-jinsei-episode-3/)
+Takt Op Destiny Episode 1 Sub Indo | [Link](https://nontonanimeid.com/shinka-no-mi-shiranai-uchi-ni-kachigumi-jinsei-episode-1-2/)
