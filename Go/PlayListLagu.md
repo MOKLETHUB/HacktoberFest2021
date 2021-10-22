@@ -8,3 +8,4 @@
 | Wisnu              | [Link](https://open.spotify.com/playlist/498qnx9hVn0TyVdLDobGB7?si=c4c2f0a14e93459c) |
 | Heal               | [Link](https://open.spotify.com/playlist/3hsumwuU1MwSmQJkBCou0k?si=9d9120eca1924fc0) |
 | dinye              | [Link](https://open.spotify.com/playlist/5wQySc67n42jZOVRwUVmW9?si=9ab0c58c88a343a5) |
+| Anisong            | [Link](https://open.spotify.com/playlist/2NBDPhxBdbM6hH8VZMxv91?si=55ad7412c6be42b9)
