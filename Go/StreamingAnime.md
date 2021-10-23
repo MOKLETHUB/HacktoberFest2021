@@ -11,3 +11,6 @@ Komi-san wa Comyushou desu Episode 3 Sub Ind | [Link](https://nontonanimeid.com/
 Shinka no Mi Shiranai Uchi ni Kachigumi Jinsei Episode 3 Sub Indo | [Link](https://nontonanimeid.com/shinka-no-mi-shiranai-uchi-ni-kachigumi-jinsei-episode-3/)
 Takt Op Destiny Episode 1 Sub Indo | [Link](https://nontonanimeid.com/shinka-no-mi-shiranai-uchi-ni-kachigumi-jinsei-episode-1-2/)
 Mushoku Tensei: Jobless Reincarnation | [Link](https://www.youtube.com/watch?v=NEIB9MVUPrQ&list=PLPanbgyToztYSgPb2BXOH7KS8sFlX2Q4H)
+Boruto | [Link](https://194.163.183.129/anime/boruto-next-generations/)
+One Piece | [Link](https://194.163.183.129/anime/one-piece/)
+Weathering With You | [Link](https://194.163.183.129/anime/one-piece/)
